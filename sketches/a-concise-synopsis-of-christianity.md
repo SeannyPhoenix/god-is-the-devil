@@ -15,9 +15,7 @@ The devil, who was able to freely access God’s creation, convinced Eve, and th
 
 This changed things. Because Adam and Eve made a single choice, God punished all humanity with a curse for all time. All people would suffer from pain, toil, sickness, and death. One could choose to honor God by choosing to worship Him and make pleasing sacrifices.
 
-From this point, God made it clear that he would choose favorites. When Adam and Eve’s sons Cain and Abel grew up, they each made offerings to God. God liked Crain’s offering because it smelled good, and because it reminded Him of the animals he’d killed for the first clothing. 
-
-This also set the expectation for all future sacrifices to God: He required the death and burning of flesh.
+From this point, God made it clear that he would choose favorites. When Adam and Eve’s sons Cain and Abel grew up, they each made offerings to God. God liked Abel's offering, which was animals, but disnt like Cain's, which was crops. This also set the expectation for all future sacrifices to God: He required the death and burning of flesh.
 
 God had many more rules, and humanity as a whole violated those rules. These laws include abstinence from violence, drunkenness, and sexual promiscuity. When he’d had enough, God decided to cleanse them from the earth through a global flood. He chose his favorite at the time, Noah, and instructed him personally to build a giant floating vessel. When the flood violently came, only Noah and his family survived, along with many animals he was instructed to bring along.
 
