@@ -11,9 +11,15 @@ Finally, he created humans, Adam, then Eve, in a paradise on earth called Eden. 
 
 At some point, one of the higher beings in God’s host decided that it was not fair for God to be preeminent and led a faction of the host in rebellion. For this, God punished them. The leader in this rebellion is known as the devil.
 
-The devil, who was able to freely access God’s creation, convinced Eve, and thus Adam, to also reject God’s law. They ate the fruit, and this caused them to feel shame for their nakedness. God punished them by ejecting them from Eden forever. He confirmed their nakedness and made clothes for them from animal skins.
+The devil, who was able to freely access God’s creation, convinced Eve, and thus Adam, to also reject God’s law. They ate the fruit, and this caused them to become aware and feel shame for of their nakedness. God punished them by ejecting them from Eden forever. He confirmed their nakedness and made clothes for them from animal skins.
+
+- Scripture does not here explain if nakedness was evil before they ate the fruit.
+- No other knowledge either good or evil is expresed in the Bible for this case.
 
 This changed things. Because Adam and Eve made a single choice, God punished all humanity with a curse for all time. All people would suffer from pain, toil, sickness, and death. One could choose to honor God by choosing to worship Him and make pleasing sacrifices.
+
+- The implication is that there was no such thing as death until this incident.
+- God placed extra curses on womankind, specifically painful childbesring and subservience to a husband.
 
 From this point, God made it clear that he would choose favorites. When Adam and Eve’s sons Cain and Abel grew up, they each made offerings to God. God liked Abel's offering, which was animals, but disnt like Cain's, which was crops. This also set the expectation for all future sacrifices to God: He required the death and burning of flesh.
 
