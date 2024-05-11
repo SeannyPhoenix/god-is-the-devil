@@ -7,7 +7,9 @@ God created the universe. This includes all time, matter, energy. This creation 
 
 God seems to have focused on Earth. He created the land, sea, and sky, along with the sun and other heavenly bodies. He also created plants and animals.
 
-Finally, he created humans, Adam, then Eve, in a paradise on earth called Eden. God set only one rule: Adam and Eve were not to eat fruit from a tree God placed in Eden.
+Finally, he created humans, Adam and Eve, in a paradise on earth called Eden. God set only one rule: Adam and Eve were not to eat fruit from a tree God placed in Eden.
+
+- In the first story in Genesis, He created Adam first, then Eve. In the second story, there is no distinction.
 
 At some point, one of the higher beings in God’s host decided that it was not fair for God to be preeminent and led a faction of the host in rebellion. For this, God punished them. The leader in this rebellion is known as the devil.
 
