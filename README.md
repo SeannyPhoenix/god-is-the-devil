@@ -7,7 +7,7 @@ Currently considering writing this in two parts:
 
 ## Part 1: God Is the Devil
 
-Part 1 is a breakdown of popular Christianity. I will attempt to illustrate the incinsistencies in the nature of God, and that His truest nature is one of sadistic destruction.
+Part 1 is a breakdown of popular Christianity. I will attempt to illustrate the inconsistencies in the nature of God, and that His truest nature is one of sadistic destruction.
 
 ## Part 2: I Am God
 
