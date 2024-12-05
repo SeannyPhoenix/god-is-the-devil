@@ -27,3 +27,19 @@ Social law is the collective agreement within a society on the spectrum of what 
 - Culture
 - Etiquette
 - Concord
+
+
+# Skeleton
+
+```
+### 
+
+#### Definition
+
+
+
+#### Synonyms
+
+- 
+
+```
