@@ -92,3 +92,9 @@ Social law is the collective agreement within a society on the spectrum of what 
 
 - Barbarism
 - Boorishness
+
+### Wonder
+
+#### Definition
+
+Wonder is the encounter of that which is unfamiliar or incomprehensible. It tends to be used with a positive connotation of delight or awe. However, it can also be used when expressing confusion, and less well with horror.
