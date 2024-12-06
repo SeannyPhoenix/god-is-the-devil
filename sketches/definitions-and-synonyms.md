@@ -54,7 +54,7 @@ Love is, at its basest form, a sense of fond connection. This connection can be 
 
 #### Definition
 
-A scandal is the revelation that an entity has transgressed social law, often having been kept secret for some time. This revelation is at odds with expected norma, usually in what feels like an affront.
+A scandal is the revelation that an entity has transgressed social law, often having been kept secret for some time. This revelation is at odds with expected norms, usually in what feels like an affront.
 
 ### Sin
 
@@ -76,7 +76,7 @@ Sin is an entity's actions, beliefs, desires, and thoughts which transgress soci
 
 #### Definition
 
-Social law is the collective agreement within a society on the spectrum of what is and what is not allowed within the context of that society. It is enforced bu those in power. Subcultures define and enforce their own laws, which contain modifications and additions.
+Social law is the collective agreement within a society on the spectrum of what is and what is not allowed within the context of that society. It is enforced by those in power. Subcultures define and enforce their own laws, which contain modifications and additions.
 
 #### Synonyms
 
