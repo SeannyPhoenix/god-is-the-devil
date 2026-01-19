@@ -29,6 +29,12 @@
 
 Betrayal is the perceived injustice of having lost or of never having had control over another entity, specifically when one had or perceived to have that control.
 
+### Fanaticism
+
+#### Definition
+
+Fanaticism is the result of adding crazy to zelotry.
+
 ### Holiness
 
 #### Definition
