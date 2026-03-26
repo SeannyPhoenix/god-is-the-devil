@@ -6,13 +6,14 @@ Translations are interpretations of common sayings. They are attempts to explore
     <summary>Skeleton</summary>
 
     ```
-    ### 
+    ###
 
     #### Translation
 
     #### Notes
 
     ```
+
 </details>
 
 ### "Good vibes only"

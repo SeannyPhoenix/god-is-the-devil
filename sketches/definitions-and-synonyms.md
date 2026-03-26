@@ -6,7 +6,7 @@
     <summary>Skeleton</summary>
 
     ```
-    ### 
+    ###
 
     #### Definition
 
@@ -14,14 +14,14 @@
 
     #### Synonyms
 
-    - 
+    -
 
     #### Antonyms
 
     -
     ```
-</details>
 
+</details>
 
 ### Betrayal
 

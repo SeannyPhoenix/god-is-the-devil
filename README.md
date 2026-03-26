@@ -1,4 +1,5 @@
 # God Is the Devil; I Am God
+
 ### Philosophical Autobiography of Seanny Drakon Phoenix
 
 God Is the Devil; I Am God follws my personal journey from childhood to "now" (whenever I last push to this repository) to explore my personal philosophy. It will refer heavily to important artifacts, such as people, events, and Christianity. I will attempt to explain the religion in which I was raised, and contrast it to my current understanding.
@@ -12,3 +13,7 @@ Part 1 is a breakdown of popular Christianity. I will attempt to illustrate the 
 ## Part 2: I Am God
 
 Part 2 is a discussion of the true nature and responsibility of man. I will attempt to show that in the absense of a universial deity, every being is god in themselves, and will choose what kind of god they will be.
+
+## Part 3: All Is Mold
+
+Part 3 is an interpretation of humanity and the entire Earth ecosystem is the evolution of mold on the planet. Even humanity is simply the evolution of consciousness.

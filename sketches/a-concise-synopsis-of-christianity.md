@@ -1,4 +1,5 @@
 # A Concise Synopsis of Christianity
+
 ## My understanding of the Bible and its tenets as taught to me in my early life
 
 There is an all-powerful eternal being, called, among various names, God. This God has a host of beings who reside with him in his eternal realm. They have a hierarchy and roles.
@@ -29,6 +30,4 @@ Humanity showed a proclivity to violence, and this grieved God. When he’d had 
 
 After the flood, however, God regretted his actions, and chose the rainbow as a promise that he would never again destroy all of humanity. Then one of Noah’s sons offended Noah, and Noah cursed him and his progeny. This curse established a racial hierarchy, though it is unclear if this curse was enforced by God.
 
-
-
-Above all, one must consciously acknowledge Him and one’s place in creation, that is, that one has been created with the ability to choose or reject God’s 
+Above all, one must consciously acknowledge Him and one’s place in creation, that is, that one has been created with the ability to choose or reject God’s
